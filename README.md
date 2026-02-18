@@ -64,7 +64,7 @@ The All-Time Classics:<br>
 Which one should you pick?<br>
  * Want a short, finished masterpiece? Go with Fullmetal Alchemist: Brotherhood.<br>
  * Want to be "hooked" from episode one? Go with Death Note.<br>
- * Want something modern and visually stunning? Go with Demon Slayer.</p>
+ * Want something modern and visually stunning? Go with Demon Slayer.<br>Some websites for watching anime<br>www.anikai.to<br>www.9anime.org.lv</p>
 </article>
 </section>
 </BODY>
